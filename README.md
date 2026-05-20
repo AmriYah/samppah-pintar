@@ -1,0 +1,1 @@
+# samppah-pintar
